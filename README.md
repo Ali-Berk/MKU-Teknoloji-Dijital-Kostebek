@@ -1,1 +1,0 @@
-# MKU-Teknoloji-Dijital-Kostebek
